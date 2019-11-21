@@ -7,3 +7,19 @@ A completed assignment will be about 12-15 pages. As this is assignment is focus
 **A few essentials**: 12-15 pages, double-spaced, 12 point font, standard font, 1-inch margins, and a properly formatted reference list *with* in-text citations. You can select any reference style you wish (Chicago, APA, MLA, etc.); just be correct and consistent.
 	
 **Your final paper is due on Thursday, December 12.**
+
+## Final Presentation Schedule
+
+* **Day 1 (Tuesday, 12/3)**:
+	1. Devesh Kodnani
+	2. Maria Neely
+	3. Quinn Underriner
+	4. Juan Ignacio Vila Cerda
+	5. Simon Hicks Prieto
+
+* **Day 2 (Thursday, 12/5)**:
+	1. Claire Brockway
+	2. Josie Lui
+	3. Alec MacMillen
+	4. Sanittawan Tan
+	5. Shuyi Yu
