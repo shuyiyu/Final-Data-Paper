@@ -15,10 +15,10 @@ A completed assignment will be about 12-15 pages. As this is assignment is focus
 	2. Maria Neely
 	3. Quinn Underriner
 	4. Juan Ignacio Vila Cerda
-	5. Simon Hicks Prieto
+	5. Claire Brockway
 
 * **Day 2 (Thursday, 12/5)**:
-	1. Claire Brockway
+	1. Simon Hicks Prieto
 	2. Josie Lui
 	3. Alec MacMillen
 	4. Sanittawan Tan
